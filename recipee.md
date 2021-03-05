@@ -1,0 +1,7 @@
+1.For making a cake you will first have to take a bowl and add 2 blocks of butter and 200ml milk and stir it. after you stir it add 500gm flour, and then mix it well untill it gets fluffy. Now you have to add the melted dark chocolate and essence and mix it nicely. Add the edible colour and flavour of your choice. And now beat it till it becomes fluffy and if it is still not fluffy then add some yeast and mix it nicely and now put the base in a mold of your choice.
+
+
+2.Now preheat the oven for around 15 minutes. if you don't have an oven then you can do the usefull through microwave also. After your preheat is done now put the mold in the oven or microwave and set the mode to bake and let it bake untill the base rises. After the base rises, its time for some decoration. Pour the melted white chocolate on the cake and make sure that you have cream to place on it. Now take some more flour and butter and mix them. Add the same amount of milk as before, and mix it till it gets hard. Add essence to it and now beat it till it gets fluffy now add the colour of your choice and add some more melted dark chocolate to it and mix it till it gets the perfect colour. And now put the base in the mold and put it to bake.
+
+
+3.After both the bases are ready now apply the cream on one base and spread it nicely and cover the sides with the melted white choco syrup. Now gently put the second base up on it and do the same with it. and now put any friuts of your choice and serve it.
